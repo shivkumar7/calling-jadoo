@@ -11,5 +11,4 @@ it also do sound "oo ohh oo oooo"  😂
 
 Thanks and follow me on my social handles :
 
-Insta : https://www.instagram.com/developer_rahul_/
-Youtube : https://www.youtube.com/@developerRahul
+Insta : https://www.instagram.com/myselfshivaa/
